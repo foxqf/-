@@ -1,6 +1,6 @@
 
 
-联系方式
+联系方式 <br/>
 •	手机：17620426956 <br/>
 •	Email：foxqf@foxmail.com  <br/>
 •	QQ：1253607694 <br/>
